@@ -1,1 +1,0 @@
-# Tugas-MatKul-Sistem-operasi-pertemuan-ke-1
